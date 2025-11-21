@@ -1,0 +1,1 @@
+Report Analysis contains our refined research where we focused on analysing the graphics obtained from the Annual Reports of a diverse set of companies - KPMG, Reliance, FICCI, Coca-Cola, Infosys and Cadbury. Also, expressed our team remarks for each graph analysed!
